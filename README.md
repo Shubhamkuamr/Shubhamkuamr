@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shubhamkuamr
 - 👀 I’m interested in ...Acting
-- 🌱 I’m currently learning ...Havking
+- 🌱 I’m currently learning ...Hacking
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...vai_bhav553
 
